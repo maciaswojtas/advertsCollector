@@ -1,1 +1,1 @@
-# advertsCollector Maciek 
+# advertsCollector Maciek   s
